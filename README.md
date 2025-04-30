@@ -1,0 +1,1 @@
+A beautiful blonde woman with large breasts and a medium-sized butt, green eyes, sun-kissed skin, wearing a stylish bikini, standing on a tropical beach, ocean in the background, realistic style, full body, relaxed and confident pose, soft sunlight, high detail, beach vibes
